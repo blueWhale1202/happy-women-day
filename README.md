@@ -8,7 +8,8 @@ You are someone truly special, someone who makes my heart race like the little h
 💕 **This website is my way of saying… I like you.**  
 I poured my heart into creating this, hoping that when you see it, you’ll feel the sincerity behind every design choice, every color, and every tiny detail.  
 
-📩 **Click on the letter** and let my feelings unfold before you.  
+📩 **Click on the letter and let my feelings unfold before you:**  
+👉 **[Open My Love Letter 💌](https://bluewhale1202.github.io/happy-women-day/)**  
 
 I don’t know where this journey will take us, but I just wanted to say...  
 **Happy Valentine’s Day, Crush.** 💌✨  
